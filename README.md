@@ -1,6 +1,6 @@
 # Hello, it's Shad here!
 
-Hi! If we haven't met, my name is Shad! I am currently studying computer science in University at Bufallo and coding....pretty much everyday 😅
+Hi! If we haven't met, my name is Shad! I am currently studying Industrial and System Engineering for my masters degree and a undergraduate graduate in computer science from University at Bufallo. I am coding....pretty much everyday 😅
 
 Aside from being a Programmer 💻 I am also a Gamer [twitch.tv/thatonenerd2000](twitch.tv/thatonenerd2000) 🎮 Anime and movie enthusiast 👾
 
